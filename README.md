@@ -12,7 +12,7 @@ i block freely!<br><br>
 ![](https://file.garden/ZiyMFQQoJTlsDCta/graphics/Github/Alastorchibimini.png)
 <br><br>
 
-[<b>atabook</b>](https://first-aid-kit.atabook.org)<br>
-[<b>gf's atabook (PLEASE SIGN IT)</b>](https://octanmarch.atabook.org)
+[<b>atabook</b>](https://first-aid-kit.atabook.org)      ‎ ‎ ‎ ‎  [<b>gf's atabook</b>](https://octanmarch.atabook.org)<br>
+[<b>read byi</b>](https://rentry.co/appIemedia)
 
 </div>
